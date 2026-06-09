@@ -1,4 +1,4 @@
-#  
+#  hidden Scripts for oil empire is the best oil empire Script, featuring silent aim and god mode. Safe and powerful for all your needs.
 
 
 
